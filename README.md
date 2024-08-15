@@ -1,0 +1,1 @@
+# loyalty-app-privacy-policy
